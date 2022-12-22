@@ -1,3 +1,3 @@
-# sourabhkumar47.github.io
+# Sourabh Kumar Portfolio Website
 
 Personal portfolio site ➡https://sourabhkumar.tech/
