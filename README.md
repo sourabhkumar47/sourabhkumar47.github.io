@@ -44,6 +44,6 @@ Your feedback is valuable! If you encounter any issues, have suggestions, or jus
 - Email: sourabh.47512@gmail.com
 - LinkedIn: [sourabhkumar47](https://www.linkedin.com/in/sourabhkumar47/)
  
-Thank you for visiting my portfolio! 🚀
+Thank you for visiting my portfolio! 🚀🌟
 
 
